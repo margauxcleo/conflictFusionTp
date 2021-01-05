@@ -1,4 +1,4 @@
-How can I just let you walk away?
+How can I just let you walk away away oh oh oh?
 Just let you leave without a trace
 When I stand here taking every breath with you, ooh
 You're the only one who really knew me at all
